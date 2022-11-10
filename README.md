@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @moemeow233
 - 👀 I’m living in China
-- 🚛 I'm learning English in a high school
+- 🚛 I'm learning medicine in Shandong Medical College
 - 🌱 Trying to better understand you.
 
 <!---
